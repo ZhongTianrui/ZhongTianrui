@@ -1,4 +1,4 @@
-## 邮箱号：ztrztr2011@163.com
+## 邮箱号：[ztrztr2011@163.com](mailto:ztrztr2011@163.com)
 # $100$ 粉丝曝字迹
 [![Page Views Count](https://badges.toozhao.com/badges/01GGKPGYJAEGNEZ6A3J7A28YWJ/green.svg)](https://badges.toozhao.com/stats/01GGKPGYJAEGNEZ6A3J7A28YWJ "Get your own page views count badge on badges.toozhao.com")
 ![](https://count.getloli.com/get/@:ztrztr)
